@@ -4,7 +4,7 @@ Cursando ADS na Fatec de Indaiatuba, onde estou tendo meus primeiros contatos co
 
 --> Tenho facilidade em comunicação e expressão.
 
---> Tenho afinidade com áreas que envolvam a matmática.
+--> Tenho afinidade com áreas que envolvam a matemática.
 
 --> Estou sempre disposto a aprender e me reinventar.
 
